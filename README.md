@@ -1,1 +1,0 @@
-# ayulestari2586-png.github.io
